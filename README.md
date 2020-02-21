@@ -1,2 +1,1 @@
-# tersakiti12.github.io
-hello world!
+Wassup Visitor :D
